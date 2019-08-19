@@ -7,3 +7,5 @@ I dont known if it still working, i dont care either.
 Use at your own risk.
 
 ## [Pasted shit proof](http://prntscr.com/ouuooq)
+
+# Dont paid for this shit, they'r selling this for 5$, fucking braindead brazilians.
